@@ -4,6 +4,6 @@
 **Result**: Egypt wins via coalition. Ethiopia collapses.
 
 Posted live: Nov 11, 2025 - 04:22 AM EET  
-[Link to X post]
+[https://twitter.com/Paxman569/status/1988069712996000237]
 
 MIT License - Free to use
